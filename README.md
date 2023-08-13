@@ -3,7 +3,6 @@
 
 - 📫 How to reach me **zawad.hussain.a@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
